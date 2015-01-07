@@ -1,4 +1,4 @@
-Tim Garlick
+Tim and Natalie Garlick
 
 # DevMountain Part-time Syllabus
 
