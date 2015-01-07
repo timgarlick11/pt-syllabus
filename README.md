@@ -1,3 +1,5 @@
+Tim Garlick
+
 # DevMountain Part-time Syllabus
 
 ## Index
